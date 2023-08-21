@@ -4,7 +4,7 @@ I enjoy studying computers on my free time :D
 <br/>
 <br/>
 <br/>
-[ . . . ]
+<br/>
 <br/>
 <br/>
 <br/>
